@@ -1,5 +1,6 @@
 
-support chanel 👉 https://youtube.com/c/DinzUgex95
+support channel 👉 https://youtube.com/c/DinzUgex95
+support channel 👉 https://youtube.com/channel/UCMYE6BzfRBLVZREX0bxOdhg
 echo "youtube : DinzUgex95
 
 
