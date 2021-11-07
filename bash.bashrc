@@ -1,6 +1,6 @@
 
-
-echo "youtube : Abang Rombeng
+support chanel 👉 https://youtube.com/c/DinzUgex95
+echo "youtube : DinzUgex95
 
 
 
