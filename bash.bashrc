@@ -1,9 +1,9 @@
 
 
-echo "youtube : Din-zUgex95"
+echo "youtube : Abang Rombeng
 
 
 
 
-      echo "     GAK SUKA   "
-      echo "  TERSERAH GW ASUUU  "
+      echo "     Terimakasih  "
+      echo "  silahkan di coba  "
